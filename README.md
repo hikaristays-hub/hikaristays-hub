@@ -6,7 +6,7 @@
 
 *Building AI-powered real estate, PropTech and hospitality products.*
 
-[Website](https://hikari-group.tech) · [LinkedIn](https://www.linkedin.com/company/hikari-group) · [GitHub](https://github.com/HIKARI-GROUP)
+[Website](https://hikari-group.tech) · [LinkedIn](https://www.linkedin.com/in/jamal-tems-0a46aa422/) · [GitHub](https://github.com/HIKARI-GROUP)
 
 </div>
 
